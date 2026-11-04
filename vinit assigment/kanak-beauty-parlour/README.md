@@ -1,4 +1,4 @@
-# ✦ Kanak Beauty Parlour — Premium Website
+# Kanak Beauty Parlour — Premium Website
 
 **Tagline:** Beauty That Makes You Shine.  
 **Owner:** Kavita Kawadker  
